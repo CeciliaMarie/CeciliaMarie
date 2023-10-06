@@ -1,2 +1,1 @@
-My name is Cecilia Marie however I normally go by Cecilia. I am a current senior at Chapman University, majoring in
-Software Engineering and doing a themed inquiry in Leadership. I expect to graduate in June 2023.
+My name is Cecilia Marie however, I normally go by Cecilia. I graduated from Chapman University with a BS in Software Engineering in May 2023.
